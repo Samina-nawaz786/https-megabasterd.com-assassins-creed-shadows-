@@ -1,2 +1,2 @@
 # https-megabasterd.com-assassins-creed-shadows-
-Assassin's Cree:d Shadows marks an exciting new chapter in Ubisoft's long-running franchise, taking players to feudal Japan—a setting fans have been requesting for years. This open-world action RPG blends the series' signature stealth gameplay with intense samurai combat, offering a fresh yet familiar experience.
+[Assassin's Cree:d Shadows](https://megabasterd.com/assassins-creed-shadows/) marks an exciting new chapter in Ubisoft's long-running franchise, taking players to feudal Japan—a setting fans have been requesting for years. This open-world action RPG blends the series' signature stealth gameplay with intense samurai combat, offering a fresh yet familiar experience.
